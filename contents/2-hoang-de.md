@@ -18,8 +18,8 @@ nước nữa.
 
 Một hôm ông nghỉ trưa, nằm mộng thấy lại chơi nước Hoa Tư Thị. Nước này ở phía
 Tây Yểm Châu, phía bắc Thai Châu, không biết cách nước Tề bao nhiêu vạn dặm.
-Không thể đi xe, đi thuyền hay đi chân mà tới nước đó được, chỉ có thể tới bằng
-tinh thần (thần du) mà thôi.
+Không thể đi xe, đi thuyền hay đi bằng chân mà tới nước đó được, chỉ có thể tới 
+bằng tinh thần (thần du) mà thôi.
 
 Nước đó không có vua, tự nhiên mà trị, dân không thị dục, tự nhiên mà sống. Họ
 không ham sống, không ghét chết, cho nên không có ai chết yểu. Họ không yêu mình
