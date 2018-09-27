@@ -459,7 +459,7 @@ chạy."
 ***
 
 Dương Chu đi xuống phía nam, lại đất Bái; Lão Đam đi qua phía Tây chơi nước Tần,
-Dương Chu tới nước Lương thì gặp Lão Tử . Lão Tử đứng giữa đường, ngửa mặt lên
+Dương Chu tới nước Lương thì gặp Lão Tử. Lão Tử đứng giữa đường, ngửa mặt lên
 trời, than:
 
 "Trước kia ta tưởng có thể dạy anh được, nay thấy là vô phương."
