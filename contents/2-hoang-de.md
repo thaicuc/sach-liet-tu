@@ -197,7 +197,7 @@ Ban đêm, hai người đó nói với nhau về uy danh của Tử Hoa, có th
 phải chết, kẻ chết được sống lại, kẻ giàu hoá nghèo, kẻ nghèo hoá giàu.
 
 Ông lão Thương Khâu Khai nghèo đói quẫn bách, nép ở cửa sổ nghe lóm được, chuẩn
-bị lương thực,xếp vào giỏ, lại nhà Tử Hoa.
+bị lương thực, lại nhà Tử Hoa.
 
 Bọn đàn em của Tử Hoa đều là hạng gia thế, bận đồ lụa, ngồi xe đẹp. Họ ung ung
 bước tới, ngó ngang ngó ngửa, liếc thấy Thương Khâu Khai tuổi đã già, sức đã
