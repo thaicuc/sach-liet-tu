@@ -160,11 +160,11 @@ rộng mấy ngàn dặm.
 
 ***
 
-Hồi ông Vũ đấp đập đào sông, có lần lạc đường, tới một nước ở bờ phía bắc Bắc
+Hồi ông Vũ đắp đập đào sông, có lần lạc đường, tới một nước ở bờ phía bắc Bắc
 Hải, không biết là cách Tề Châu mấy vạn dặm.
 
 Nước đó tên là Chung Bắc, không biết biên giới tới đâu, không có gió mưa, không
-có sương, giá,không có các loài cầm thú, trùng, cá, cỏ cây, bốn phương bằng
+có sương giá, không có các loài cầm thú, trùng, cá, cỏ cây, bốn phương bằng
 phẳng, chỗ nào cũng là bình nguyên cao.
 
 Ở giữa nước đó có một ngọn núi gọi là Hồ Lĩnh, coi như cái lọ, đỉnh có miệng như
@@ -183,10 +183,10 @@ trăm tuổi rồi chết, không ai ốm đau, không ai chết yểu, dân s�
 
 Ai cũng sung sướng, vui vẻ, không ai suy nhược già nua, buồn rầu, đau khổ. Họ
 thích đàn hát, nắm tay nhau mà ca hát suốt ngày không dứt. Khi đói mệt, họ uống
-nước Suối Thần, sức mạnh cùng tinh thần lại phục hồi; nếu uống quá thì say, mười
+nước suối thần, sức mạnh cùng tinh thần lại phục hồi; nếu uống quá thì say, mười
 ngày sau mới tỉnh.
 
-Họ tắm nước “suối thần”, da dẻ tươi nhuận, mười ngày sau hương thơm mới hết.
+Họ tắm nước suối thần, da dẻ tươi nhuận, mười ngày sau hương thơm mới hết.
 
 Vua Chu Mục vương đi chơi phương bắc, tới nước đó, ba năm quên về.
 
