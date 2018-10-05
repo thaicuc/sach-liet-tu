@@ -49,8 +49,7 @@ Hoàng Hà, ở phía đông và phía tây núi Thái Sơn, trên vạn dặm. 
 và sáng phân biệt, cho nên hết đêm tới ngày, hết ngày tới đêm. Dân chúng có
 người trí kẻ ngu, vạn vật phồn thịnh, tài nghệ nhiều vẻ, vua tôi thân nhau, lễ
 nghĩa và pháp luật dựa lẫn nhau. Không sao kể hết được ngôn, hành của họ. Họ
-thức rồi ngủ, ngủ rồi thức, cho việc làm khi thức là thực, còn những cái thấy
-khi ngủ là sai.
+thức rồi ngủ, ngủ rồi thức.
 
 Ở phía bắc góc cực đông có một nước gọi là Phụ Lạc. Ở đó hơi đất thường nóng;
 ánh sáng mặt trời mặt trăng nhiều quá, đất đai không sinh được lúa tốt, dân
