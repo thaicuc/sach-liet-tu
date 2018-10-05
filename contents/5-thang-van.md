@@ -65,7 +65,7 @@ vẫn còn cao vài chục trượng.
 Nghiêu, người cao một thước năm tấc, ở góc đông bắc, có giống người tên là
 Tránh, cao chín tấc.
 
-Ở phía nam nước Kinh (tức nước Sở) có cây minh linh , mùa xuân là năm trăm năm,
+Ở phía nam nước Kinh (tức nước Sở) có cây minh linh, mùa xuân là năm trăm năm,
 mùa thu là năm trăm năm. Thời thượng cổ có cây xuân lớn, mùa xuân là tám ngàn
 năm, mùa thu là tám ngàn năm. Trên đất thối có thứ nấm sáng sinh chiều chết. Mùa
 xuân và mùa hè có loài mông nhuế sinh ra trong lúc mưa và trời nắng lên thì
