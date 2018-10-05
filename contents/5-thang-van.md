@@ -104,7 +104,7 @@ giống nhau và khác nhau?
 Hai ngọn núi Thái Hình và Vương Ốc rộng bảy trăm dặm vuông, cao vạn nhẫn, xưa
 kia vốn ở phía nam Kí châu và phía bắc Hà Dương .
 
-Ở gần Bắc Sơn, có ông Ngu Công , tuổi đã chín mươi, nhà đối diện với núi, bực
+Ở gần Bắc Sơn, có ông Ngu Công, tuổi đã chín mươi, nhà đối diện với núi, bực
 mình rằng núi chắn lối, sự giao thông với miền ngoài hoá ra xa xôi bất tiện. Ông
 bèn hội họp con cháu trong nhà bảo:
 
