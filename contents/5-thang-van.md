@@ -10,12 +10,12 @@ Hạ Cách đáp:
 
 "Lấy gì làm bằng cớ?"
 
-"Tôi đã đi về phía Đông, tới nước Dinh , nhân dân ở đó cũng như ở đây ; hỏi
-người ở đó phía Đông nước Dinh ra sao, họ đáp cũng như nước Dinh; tôi đi về
-phía Tây, tới nước Bân, nhân dân ở đó cũng như ở đây, hỏi người ở đó về phía Tây
-nước Bân ra sao, họ đáp cũng như ở nước Bân. Cho nên tôi cho rằng bên kia tứ hải
-(bốn bể), tứ hoang (bốn cõi hoang), tứ cực (bốn cõi cùng cực) cũng không khác
-gì ở đây.
+"Tôi đã đi về phía Đông, tới nước Dinh, nhân dân ở đó cũng như ở đây; Hỏi người 
+ở đó phía Đông nước Dinh ra sao, họ đáp cũng như nước Dinh; tôi đi về phía Tây, 
+tới nước Bân, nhân dân ở đó cũng như ở đây, hỏi người ở đó về phía Tây nước Bân 
+ra sao, họ đáp cũng như ở nước Bân. Cho nên tôi cho rằng bên kia tứ hải (bốn 
+bể), tứ hoang (bốn cõi hoang), tứ cực (bốn cõi cùng cực) cũng không khác gì ở 
+đây.
 
 Cho nên cái lớn trùm cái nhỏ, không có cùng cực. Cái bao trùm vạn vật, cũng là
 cái bao trùm trời đất. Bao trùm vạn vật, trời đất, cho nên không có cùng cực.
@@ -29,8 +29,6 @@ giận mà đập núi Bất Chu, làm gãy mất cái trụ đỡ trời, đứ
 nên trời mới nghiêng về phía Tây Bắc, mà mặt trời mặt trăng, các ngôi sao chạy
 về phía đó; còn đất thì khuyết ở phía Đông Nam, cho nên trăm sông lớn nhỏ đều đổ
 về phía đó."
-
-***
 
 Vua Thang lại hỏi:
 
