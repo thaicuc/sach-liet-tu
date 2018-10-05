@@ -528,7 +528,7 @@ Tương tử đáp:
 
 Người đó nói:
 
-"Tôi không biết đấy."
+"Tôi không biết gì cả."
 
 Nguỵ Văn hầu nghe chuyện đó hỏi Tử Hạ :
 
@@ -549,7 +549,7 @@ Văn hầu hỏi:
 
 Văn hầu bảo:
 
-"Thế còn Phu Tử (Khổng Tử) sao không làm?"
+"Thế còn Phu tử (Khổng Tử) sao không làm?"
 
 Tử Hạ đáp:
 
@@ -573,14 +573,14 @@ vương không ưa đạo đó sao?"
 
 Vua Tống bảo:
 
-"Tốt lắm, đó là điều quả nhân muốn nghe."
+"Đó chính là đạo mà quả nhân muốn nghe."
 
 Huệ Áng nói:
 
 "Bị kẻ khác đâm mà không vô, bị kẻ khác đập mà không trúng, (tuy là không bị
-thương đấy, nhưng) vẫn còn là bị nhục."
+thương đấy, nhưng) vẫn còn là bị nhục.
 
-Thần lại có đạo khiến cho một người đã dũng cảm rồi mà kẻ khác lại không dám
+Thần lại có cái đạo khiến cho một người đã dũng cảm rồi mà kẻ khác lại không dám
 đâm, đã mạnh rồi kẻ khác không dám đập. Nhưng họ không dám không phải là không
 muốn.
 
@@ -591,11 +591,11 @@ Thần lại có cái đạo khiến cho không một người đàn ông, một
 không vui vẻ quí mến và giúp đỡ đại vương. Như vậy đại vương còn hiền minh hơn
 có dũng lực.
 
-Thần cho là hơn hẳn bốn hạng trên. Có lẽ nào riêng đại vương không ưa đạo đó.
+Thần cho là hơn hẳn bốn hạng trên. Có lẽ nào riêng đại vương không ưa đạo đó?"
 
 Vua Tống đáp:
 
-"Đó chính là đạo quả nhân muốn có."
+"Đó chính là đạo mà quả nhân muốn có."
 
 Huệ Áng bảo:
 
@@ -605,7 +605,8 @@ ai là không nghểnh cổ, nhón gót để ngó, để giúp đỡ, bảo to�
 là một vị chúa một nước có vạn cổ xe, nếu thực muốn như vậy, thì trong bốn cõi,
 đại vương đều được mọi người giúp đỡ, còn hiền minh hơn Khổng, Mặc nhiều."
 
-Vua Tống làm thinh không đáp. Huệ Áng vội vã bước ra. Vua Tống bảo kẻ tả hữu:
+Vua Tống làm thinh không đáp. Huệ Áng vội vã bước ra. Vua Tống nói với bề tôi 
+tả hữu:
 
 "Người khách đó khéo biện thuyết, quả nhân không biết đáp sao."
 
