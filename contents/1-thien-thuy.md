@@ -278,7 +278,7 @@ Sách Hoàng Đế có câu: 'Hình mà động thì không sinh ra một hình 
 cái bóng; thanh âm mà phát ra thì không sinh ra một thanh âm khác mà sinh ra
 tiếng vang; cái 'vô' mà động thì không sinh ra cái 'vô' mà sinh ra cái 'hữu'.'
 
-Đã là hình thì phải có chỗ tận cùng, mà trời đất có tận cùng không? (Có vẻ như
+Đã là hình thì phải có chỗ tận cùng, mà trời đất có tận cùng không? Có vẻ như
 trời đất cùng tận cùng với ta. Nhưng như vậy có thật là tận cùng không thì ta
 không biết được. Đạo có tận cùng không? Nó vốn không có khởi thuỷ, làm sao có
 tận cùng được? Nó có hết không? Nó vốn không có (vô) thì làm sao mà hết được?
@@ -294,8 +294,8 @@ sống hoài không chết là kẻ mê muội, không hiểu lẽ trời.
 Tinh thần thuộc về trời, hài cốt thuộc về đất; thuộc về trời thì trong mà tán,
 thuộc về đất thì đục mà tụ. Khi tinh thần lìa thể xác rồi thì mỗi cái đều trở về
 nguồn gốc riêng của mình, cho nên gọi là 'quỉ'. 'Quỉ' (ma quỉ) tức là 'qui', là
-về, về cái gốc của nó. Tinh thần về nhà cửa của nó rồi, hài cốt về cội nguồn của
-nó rồi, thì làm sao ta còn tồn tại được nữa?.
+về, về với cái gốc của nó. Tinh thần về nhà cửa của nó rồi, hài cốt về cội nguồn 
+của nó rồi, thì làm sao ta còn tồn tại được nữa?.
 
 Con người từ lúc sanh tới lúc chết, trải qua bốn sự biến hoá lớn: tuổi thơ,
 tráng niên, già rồi chết. Trong tuổi thơ, khí và chí chuyên nhất, thực là hoà
@@ -328,17 +328,17 @@ chung của mọi người, có gì mà buồn?"
 
 Khổng Tử bảo:
 
-"Đạt quan niệm rộng thoáng như vậy, sáng suốt thay!"
+"Đạt quan niệm rộng như vậy, sáng suốt thay!"
 
 ***
 
 Thuấn hỏi ông Chưng:
 
-"Có thể đạt được, nắm được đạo không?"
+"Có thể đạt được, nắm được Đạo không?"
 
 Đáp:
 
-"Ngay cái thân anh cũng không phải của anh, thì anh làm sao nắm được đạo?"
+"Ngay cái thân anh cũng không phải của anh, thì anh làm sao nắm được Đạo?"
 
 Lại hỏi:
 
