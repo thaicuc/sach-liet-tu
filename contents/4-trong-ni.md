@@ -298,28 +298,27 @@ Tuyên Vương nổi giận, bảo:
 
 "Sức bọn dũng sĩ của ta có thể xé da một con tê, nắm đuôi chín con bò mà kéo
 (lùi lại), mà ta còn cho là yếu; ngươi bẻ gãy được càng con giọt sành mùa xuân,
-mang được cánh ve mùa thu, mà nổi tiếng là mạnh trong thiên hạ, sao vậy?"
+mang được cánh ve mùa thu, mà nổi tiếng là mạnh trong thiên hạ, sao vậy?
 
 Công Nghi Bá thở dài, đương ngồi trên chiếu, đứng dậy, tâu:
 
-"Câu hỏi của đại vương thật hay, thần xin cứ thực mà đáp: Thầy của thần là
+"Câu hỏi của đại vương thật hay, thần xin cứ thực mà đáp. Thầy của thần là
 Thương Khâu Tử, vào hạng vô địch trong thiên hạ, mà người thân trong nhà không
-ai biết là vì không bao giờ dùng sức vậy."
+ai biết là vì không bao giờ dùng sức vậy.
 
 Thần thờ thầy tới khi thầy mất, có lần được thầy bảo:
 
-"Người nào muốn thấy những cái người khác không thấy thì phải nhìn cái người
+'Người nào muốn thấy những cái người khác không thấy thì phải nhìn cái người
 khác không nhìn; người nào muốn có những cái người khác không có thì phải làm
 những cái người khác không làm. Cho nên muốn tập trông thì mới đầu phải nhìn một
-chiếc xe củi; muốn tập nghe thì mới đầu phải lắng nghe tiếng chuông."
+chiếc xe củi; muốn tập nghe thì mới đầu phải lắng nghe tiếng chuông. Cái gì dễ 
+thực hiện ở trong thì khó thực hiện ở ngoài. Không gặp cái khó ở ngoài, cho nên 
+danh tiếng không truyền ra khỏi cửa.'
 
-Cái gì dễ thực hiện ở trong thì khó thực hiện ở ngoài. Không gặp cái khó ở
-ngoài, cho nên danh tiếng không truyền ra khỏi cửa. Nay thần nổi danh khắp chư
-hầu là làm trái lời giáo huấn của thầy mà để cho người khác biết tài năng của
-thần.
-
-Nhưng thần sở dĩ nổi danh không phải là vì thần cậy sức mạnh mà vì thần biết
-dùng sức mạnh, như vậy chẳng hơn là cậy sức mạnh ư?"
+Nay thần nổi danh khắp chư hầu là làm trái lời giáo huấn của thầy mà để cho 
+người khác biết tài năng của thần. Nhưng thần sở dĩ nổi danh không phải là vì 
+thần cậy sức mạnh mà vì thần biết dùng sức mạnh, như vậy chẳng hơn là cậy sức 
+mạnh ư?"
 
 ***
 
