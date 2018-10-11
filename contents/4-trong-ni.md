@@ -99,8 +99,6 @@ mà liên can đến tôi là tôi biết liền. Nhưng tôi không hiểu là 
 ngũ quan hay của các bộ phận trong người, (tôi chỉ biết) cái biết đó tự nhiên
 phát ra vậy thôi."
 
-Lỗ Hầu mừng lắm, một hôm kể lại với Khổng Tử, Khổng Tử cười mà không nói.
-
 ***
 
 Tử Hạ hỏi Khổng tử:
@@ -304,9 +302,8 @@ Công Nghi Bá thở dài, đương ngồi trên chiếu, đứng dậy, tâu:
 
 "Câu hỏi của đại vương thật hay, thần xin cứ thực mà đáp. Thầy của thần là
 Thương Khâu Tử, vào hạng vô địch trong thiên hạ, mà người thân trong nhà không
-ai biết là vì không bao giờ dùng sức vậy.
-
-Thần thờ thầy tới khi thầy mất, có lần được thầy bảo:
+ai biết là vì không bao giờ dùng sức vậy. Thần thờ thầy tới khi thầy mất, có 
+lần được thầy bảo:
 
 'Người nào muốn thấy những cái người khác không thấy thì phải nhìn cái người
 khác không nhìn; người nào muốn có những cái người khác không có thì phải làm
