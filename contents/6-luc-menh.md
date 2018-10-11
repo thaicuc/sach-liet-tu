@@ -332,6 +332,6 @@ Người thợ thì chăm lo cái khéo léo. Người nhân nghĩa thì tùy th
 làm, sao cho đáp ứng thực tế giúp người là tốt. Cho nên nhà nông hay nghĩ đến
 việc khô hạn hay có nước (để làm ruộng), người buôn bán thì lo việc lời lỗ,
 người thợ thì lo việc nên hư tốt xấu, kẻ làm quan thì nghĩ đến gặp thời vận 
-hay không... Tất cả đều thuận theo lẽ tự nhiên, có gì phải buồn khổ?"
+hay không... Tất cả đều thuận theo lẽ tự nhiên."
 
 [Chương 7: Dương Chu &rarr;](https://github.com/thaicuc/sach-liet-tu/blob/master/contents/7-duong-chu.md)
