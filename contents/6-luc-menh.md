@@ -1,9 +1,9 @@
 # Chương 6: Lực Mệnh
 
-Quản Di Ngô (Trọng) và Bảo Thúc Nha là hai nhân vật trong thời Xuân Thu (thế kỷ
-thứ 7 trước công nguyên ở Trung Quốc). Hai người là bạn thân của nhau. Quản
-Trọng tương đối nghèo, còn Bảo Thúc Nha lại khá giàu sang, nhưng họ rất hiểu
-biết nhau và tín nhiệm nhau.
+Quản Di Ngô (Quản Trọng) và Bảo Thúc Nha là hai nhân vật trong thời Xuân Thu 
+(thế kỷ thứ 7 trước công nguyên ở Trung Quốc). Hai người là bạn thân của nhau. 
+Quản Trọng tương đối nghèo, còn Bảo Thúc Nha lại khá giàu sang, nhưng họ rất 
+hiểu biết nhau và tín nhiệm nhau.
 
 Hai người hồi đầu cùng nhau buôn bán, Quản Trọng chỉ bỏ ra rất ít tiền vốn, lúc
 chia hoa hồng lại được chia rất nhiều. Bảo Thúc Nha không ganh tị việc này, ông
@@ -93,22 +93,20 @@ tuỳ thuộc ta.
 
 ***
 
-Có thể sống được (một cách vui vẻ) mà sống, đó là được trời thương.
+Có thể sống được (một cách vui vẻ) mà sống, tới lúc nên chết mà chết, là được 
+trời thương.
 
-Tới lúc nên chết mà chết, là được trời thương.
-
-Có thể sống được mà không sống, là trời phạt.
-
-Tới lúc nên chết mà không chết, là bị trời phạt.
+Có thể sống được mà không sống, tới lúc nên chết mà không chết, là bị trời 
+phạt.
 
 Có thể sống, có thể chết mà được sống được chết, là do mệnh trời. Không nên
 sống, không nên chết mà sống hoặc chết là do mệnh trời. Vậy thì sống sống chết
 chết, không do ta hay do ngoại vật, đều là số mệnh hết, trí óc ta không sao
 hiểu được. Cho nên bảo:
 
-Đạo trời tự tạo nên, sâu xa không biết tới đâu là cùng.
+Đạo tự tạo nên, sâu xa không biết tới đâu là cùng.
 
-Đạo trời tự vận hành, mênh mông, không phân biệt.
+Đạo tự vận hành, mênh mông, không phân biệt.
 
 Trời đất không phạm được nó.
 
@@ -307,12 +305,12 @@ nhân, riêng ông cười là tại sao?"
 
 "Nếu bậc hiền tài cứ sống hoài thì đức Thái Công và Hoàn Công còn sống đến ngày
 nay. Nếu những người dũng cảm mà sống hoài thì các đức Trang Công, Linh Công còn
-sống đến ngày nay. Nếu tất cả các vị đó còn sống đến nay thì nhà vua tất bận áo
-tơi, đội nón lá mà đứng ở giữa đồng, lo việc ruộng nương chứ đâu được nhàn hạ mà
-nghĩ tới chết như vậy? Nhà vua đâu được lên ngôi như vậy? Nhờ cái lẽ thay phiên
-nhau kẻ ở người đi, nên ngôi vua mới tới đại vương. Đại vương chỉ vì vậy mà khóc
-thì quả là bất nhân quá. Thần thấy một ông vua bất nhân, lại thấy những bề tôi
-nịnh hót này, mới riêng cười thầm."
+sống đến ngày nay. Nếu tất cả các vị đó còn sống đến nay thì nhà vua có lẽ đang 
+bận áo tơi, đội nón lá mà đứng ở giữa đồng, lo việc ruộng nương chứ đâu được nhàn 
+hạ mà nghĩ tới chết như vậy? Nhà vua đâu được lên ngôi như vậy? Nhờ cái lẽ thay 
+phiên nhau kẻ ở người đi, nên ngôi vua mới tới đại vương. Đại vương chỉ vì vậy mà 
+khóc thì quả là bất nhân quá. Thần thấy một ông vua bất nhân, lại thấy những bề 
+tôi nịnh hót này, mới riêng cười thầm."
 
 Cảnh Công xấu hổ, nâng chén rượu lên uống để tự phạt mình, rồi phạt hai người bề
 tôi kia mỗi người hai chén.
@@ -327,13 +325,13 @@ quản gia hỏi:
 Họ Ngô đáp:
 
 "Xét hồi ta không có con, lúc đó ta không buồn. Nay nó mất thì như hồi ta chưa
-có nó. Vậy có gì mà buồn?"
+có nó. Vậy có gì mà buồn?
 
 Nhà nông thì theo thời tiết (mà làm ruộng). Người buôn bán thì lo kiếm lời.
 Người thợ thì chăm lo cái khéo léo. Người nhân nghĩa thì tùy theo tình thế mà
 làm, sao cho đáp ứng thực tế giúp người là tốt. Cho nên nhà nông hay nghĩ đến
 việc khô hạn hay có nước (để làm ruộng), người buôn bán thì lo việc lời lỗ,
-người thợ thì lo việc nên hư tốt xấu, kẻ làm quan thì nghĩ đến gặp thời vận hay
-không... Tất cả đều thuận theo lẽ tự nhiên, có gì phải buồn khổ?
+người thợ thì lo việc nên hư tốt xấu, kẻ làm quan thì nghĩ đến gặp thời vận 
+hay không... Tất cả đều thuận theo lẽ tự nhiên, có gì phải buồn khổ?"
 
 [Chương 7: Dương Chu &rarr;](https://github.com/thaicuc/sach-liet-tu/blob/master/contents/7-duong-chu.md)
