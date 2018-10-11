@@ -160,7 +160,7 @@ Thầy Liệt Tử đáp:
 
 "Nam Quách Tử bề ngoài như mọi người mà lòng thì hư tĩnh, tai không nghe, mắt
 không thấy, miệng không nói, tâm không biết, hình hài trơ trơ, qua thăm ông ấy
-để làm gì đâu. Nhưng thôi, chúng ta cũng thử qua xem sao vậy.
+để làm gì đâu. Nhưng thôi, chúng ta cũng thử qua xem sao vậy."
 
 Thế là Liệt Tử cùng với bốn chục môn đệ qua nhà Nam Quách Tử, quả nhiên thấy ông
 ấy trơ trơ như pho tượng, không thể tiếp xúc, chuyện trò được. Nam Quách Tử liếc
