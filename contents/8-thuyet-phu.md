@@ -1,6 +1,6 @@
 # Chương 8: Thuyết Phù
 
-Thầy Liệt Tử học với Hồ Khâu Tử Lâm. Hồ Khâu Tử Lâm bảo:
+Liệt Tử học với Hồ Khâu Tử Lâm. Hồ Khâu Tử Lâm bảo:
 
 "Anh phải tập trung ở phía sau thì mới có thể nói rằng giữ được thân mình."
 
@@ -8,21 +8,21 @@ Liệt Tử hỏi:
 
 "Xin thầy cho nghe thế nào là đứng ở phía sau."
 
-Đáp:
+Hồ Khâu Tử Lâm đáp:
 
-"Quay lại nhìn cái bóng của anh thì biết."
+"Anh quay lại nhìn cái bóng của anh thì biết."
 
 Liệt Tử quay lại nhìn cái bóng của mình, hễ vặn thân mình thì cái bóng cong, 
 đứng thẳng lại thì cái bóng cũng thẳng.
 
-Vậy cong hay ngay là tuỳ thân thể chứ không tuỳ cái bóng. Biết co hay duỗi tuỳ 
-vật chứ không tuỳ ta, như vậy là đứng ở phía sau mà được ở phía trước.
+Hồ Khâu Tử Lâm bảo:
+
+"Như vậy cong hay ngay là tuỳ thân thể chứ không tuỳ cái bóng. Biết co hay duỗi 
+tuỳ vật chứ không tuỳ ta, như vậy là đứng ở phía sau mà được ở phía trước."
 
 ***
 
-Quan Doãn bảo thầy Liệt Tử :
-
-"Lời mà đẹp thì tiếng vang cũng đẹp, lời mà xấu thì tiếng vang cũng xấu, thân 
+Lời mà đẹp thì tiếng vang cũng đẹp, lời mà xấu thì tiếng vang cũng xấu, thân 
 hình cao thì bóng dài, thân hình lùn thì bóng ngắn. Danh cũng như tiếng vang, 
 thân hình cũng như cái bóng. Cho nên bảo: Thận trọng lời nói thì người ta sẽ 
 biết mình, thận trọng hành vi thì người ta sẽ theo mình.'
@@ -41,8 +41,7 @@ Hành động như vậy mà mong có lợi, chẳng là khổ ư?
 
 Xét đức Thần Nông, Hữu Viêm, rồi tra khảo sử đời Ngu, Hạ, Thương, Chu, suy ngẫm 
 lời các hiền nhân, pháp sĩ, cái lẽ tồn vong, hưng phế của thời trước, không khi 
-nào không theo cái đạo đó (tức đạo thương người thì được người thương lại, ghét 
-người thì bị người ghét lại).
+nào không theo cái đạo đó.
 
 ***
 
@@ -50,7 +49,7 @@ Liệt Tử học bắn (may mà bắn trúng), hỏi Quan Doãn Tử. Doãn T�
 
 "Anh biết tại sao anh bắn trúng không?"
 
-Đáp:
+Liệt Tử đáp:
 
 "Thưa không."
 
@@ -73,9 +72,11 @@ Một người nước Tống lấy ngọc chạm trổ thành lá dó, để d�
 các lá dó thật, không sao phân biệt được. Người đó nhờ tài khéo mà được vua Tống 
 khen, cấp lương bổng cho.
 
-Thầy Liệt Tử nghe nói, bảo: “Trời đất khi sinh vạn vật mà phải mất ba năm mới 
-thành một cái lá thì ít cây cỏ lắm! Cho nên thánh nhân trông vào cái đạo để cải 
-hoá chứ không trông vào trí xảo”.
+Thầy Liệt Tử nghe nói, bảo: 
+
+“Trời đất khi sinh vạn vật mà phải mất ba năm mới thành một cái lá thì ít cây cỏ 
+lắm. Cho nên thánh nhân thuận theo tự nhiên mà sửa mình chứ không trông vào trí 
+xảo.”
 
 ***
 
@@ -85,9 +86,9 @@ Trịnh hay:
 "Liệt Ngự Khấu là bậc sĩ đạt đạo, ở nước ông mà phải nghèo khổ, vậy ra ông không 
 quí kẻ sĩ sao?"
 
-Tử Dương tức thì sai một ông quan đem lúa lại tặng Liệt Tử . Liệt Tử ra tiếp, 
-vái hai vái mà từ chối. Sứ giả về rồi, Liệt Tử trở vô. Bà vợ lườm ông, đập vào 
-ngực, bảo:
+Tử Dương tức thì sai một ông quan đem lúa lại tặng Liệt Tử. Liệt Tử ra tiếp, vái 
+hai vái mà từ chối. Sứ giả về rồi, Liệt Tử trở vô. Bà vợ lườm ông, đập vào ngực, 
+bảo:
 
 "Thiếp nghe nói vợ con một người đạt đạo thì được vui vẻ sung sướng. Nay cả nhà 
 đều đói, được tướng quốc biết mà cho lúa, thầy không nhận, thế không phải là làm 
@@ -98,7 +99,7 @@ Thầy Liệt Tử cười mà đáp:
 "Tướng quốc đâu phải tự biết ta. Vì nghe lời người khác mà cho ta lúa, rồi thì 
 cũng sẽ nghe người khác mà bắt tội ta. Vì vậy mà ta không nhận."
 
-Rồi đột nhiên, dân trong nước nổi loạn, giết Tử Dương.
+Ít lâu sau, dân trong nước nổi loạn, giết Tử Dương.
 
 ***
 
@@ -156,7 +157,7 @@ người đàn bà hái dâu, đâm mê mà đứng lại tán tỉnh. Nhưng kh
 thì một chàng cũng vẫy vợ mình đi. Thần mỉm cười vì chuyện đó."
 
 Văn Công tỉnh ngộ, thôi không đánh Vệ nữa, đem quân về, chưa tới nơi thì có tin 
-giặc đánh ở biên cương phía bắc.
+giặc đánh ở biên cương phía Bắc.
 
 ***
 
@@ -176,23 +177,19 @@ Văn Tử tâu:
 "Nhà vua dùng cách nhận diện kẻ trộm đó mà diệt trộm, thì không sao hết trộm 
 được đâu. Khích Ung rồi sẽ bất đắc kì tử cho mà xem."
 
-Chẳng bao lâu bọn trộm bàn tính với nhau:
+Chẳng bao lâu bọn trộm bàn tính với nhau, rồi lập âm mưu giết Khích Ung.
 
-"Chúng ta khốn đốn chỉ vì tên Khích Ung đó."
+Khích Ung chết. Tấn hầu nghe tin, hoảng sợ, lập tức vời Văn Tử vô, bảo:
 
-Rồi chúng âm mưu với nhau giết Khích Ung.
-
-Tấn hầu nghe tin, hoảng sợ, lập tức vời Văn tử vô, bảo:
-
-"Đúng như lời ông đoán, Khích Ung chết rồi. Có cách nào diệt trộm được bây giờ."
+"Đúng như lời tiên sinh, Khích Ung chết rồi. Có cách nào diệt trộm được bây giờ."
 
 Văn tử tâu:
 
 "Ngạn ngữ nước Chu có câu: 'Dò kiếm cá dưới vực thẳm thì sẽ bất hạnh, tìm đoán 
-những điều ẩn kín thì sẽ gặp tai ương'. Nhà vua muốn trong nước không có trộm 
+những điều ẩn kín thì sẽ gặp tai ương.' Nhà vua muốn trong nước không có trộm 
 cướp thì không gì bằng dùng người hiền mà giao cho trọng trách, người trên sẽ 
 sáng suốt, người dưới sẽ nhờ vậy mà được cải hoá. Khi dân có lòng liêm sỉ thì 
-làm gì còn trộm cướp nữa?
+làm gì còn trộm cướp nữa?"
 
 Tấn hầu nghe lời, cử Tuỳ Hội coi việc nước và bọn trộm cướp trốn qua nước Tần 
 hết.
@@ -217,6 +214,8 @@ Khổng Tử nghe được bảo:
 
 "Họ Triệu sẽ thịnh. Biết lo thì sẽ thịnh, vui mừng thì sẽ nguy."
 
+***
+
 Thắng không phải khó, giữ được mới khó. Bậc minh quân hiểu lẽ đó mà giữ được 
 thắng lợi, để phúc lại cho con cháu. Các nước Tề, Sở, Ngô, Việt đều đã có lần 
 thắng các chư hầu mà rốt cuộc đều bại vong, là vì không hiểu cái lẽ duy trì 
@@ -231,20 +230,19 @@ Cho nên người nào biết duy trì thắng lợi thì tuy mạnh mà vẫn c
 
 ***
 
-Vua Tần Mục Công bảo Bá Nhạc: -
+Vua Tần Mục Công bảo Bá Lạc:
 
 "Ông đã già rồi, con cháu có người nào sai tìm ngựa tốt được không?"
 
-Bá Nhạc đáp:
+Bá Lạc đáp:
 
 "Ngựa tốt, coi hình dáng, gân cốt thì biết được. Nhưng con ngựa nhất thiên hạ 
 thì có cái gì đó như ẩn như hiện, như có như không, cảm được chứ không thấy 
 được, nó chạy thì không tung bụi lên (tuyệt trần), không để lại dấu xe nữa. Bầy 
 con của thần đều bất tài, thần chỉ có thể giảng cho chúng hiểu thế nào là ngựa 
-tốt mà không thể giảng cho chúng nhận ra được con ngựa tuyệt trần. 
-
-Thần có một người bạn cùng chở củi và rau, tên là Cửu Phương Cao, coi ngựa không 
-kém thần, đại vương nên vời người đó tới."
+tốt mà không thể giảng cho chúng nhận ra được con ngựa tuyệt trần. Thần có một 
+người bạn cùng chở củi và rau, tên là Cửu Phương Cao, coi ngựa không kém thần, 
+đại vương nên vời người đó tới."
 
 Mục vương vời người đó tới, sai đi tìm ngựa. Ba tháng sau người đó về tâu:
 
@@ -330,12 +328,12 @@ Người ở Hồ Phủ đúng là tên cướp, nhưng cứu sống người đ
 cướp bóc.
 
 Viên Tinh Mục lấy lẽ người đó là kẻ cướp mà không chịu ăn thức ăn của người đó 
-(cho là bất nghĩa) như vậy là lầm danh với thực.
+(vì cho là bất nghĩa) như vậy là lầm danh với thực.
 
 ***
 
-Trụ Lệ Thúc thờ Ngao công nước Cử , tự cho là Ngao công không biết dùng mình, 
-nên bỏ về ở ẩn tại bờ biển, muà hè ăn củ ấu, mùa đông ăn hạt giẻ.
+Trụ Lệ Thúc thờ Ngao công nước Cử, tự cho là Ngao công không biết dùng mình, 
+nên bỏ về ở ẩn tại bờ biển, mùa hè ăn củ ấu, mùa đông ăn hạt giẻ.
 
 Tới khi Ngao công gặp bước nguy nan, Trụ Lệ Thúc từ biệt bạn bè mà hi sinh lại 
 cứu. Bạn bè hỏi:
@@ -358,22 +356,22 @@ Có thể bảo Trụ Lệ Thúc là người vì quá oán giận mà tự hu�
 
 Dương Chu viết:
 
-"Hành thiện bất dĩ vi danh nhi danh tùng chi; danh bất dữ lợi kỳ nhi lợi qui 
-chi; lợi bất dữ tranh kỳ nhi tranh cập chi. Cố quân tử tất thận vi thiện."
+> Hành thiện bất dĩ vi danh nhi danh tùng chi.  
+> Danh bất dữ lợi kỳ nhi lợi qui chi.  
+> Lợi bất dữ tranh kỳ nhi tranh cập chi.  
+> Cố quân tử tất thận vi thiện.
 
-Dương Chu nói:
+Có nghĩa là:
 
-"Người làm điều thiện không phải để cầu danh mà danh tự tới."
-
-Danh không hẹn gì với lợi mà lợi theo nó. Lợi không hẹn gì với sự tranh giành mà 
-sự tranh giành cứ đến với nó.
-
+Người làm điều thiện không phải để cầu danh mà danh tự tới.  
+Danh không hẹn gì với lợi mà lợi theo nó.  
+Lợi không hẹn gì với sự tranh giành mà sự tranh giành cứ đến với nó.  
 Vì vậy, người quân tử phải thận trọng mà làm điều thiện.
 
 ***
 
-Người láng giềng của Dương Tử mất con cừu , đã sai tất cả người trong nhà đi 
-tìm, lại xin Dương Tử cho trẻ tìm hộ nữa. Dương Chu hỏi:
+Người láng giềng của Dương Tử mất con cừu, đã sai tất cả người trong nhà đi tìm, 
+lại xin Dương Tử cho trẻ tìm hộ nữa. Dương Chu hỏi:
 
 "Ôi! Mất có một con cừu, sao mà cần nhiều người thế?"
 
@@ -395,10 +393,10 @@ Lại hỏi:
 phải về."
 
 Dương Chu rầu rầu nét mặt, không nói gì cả một hồi lâu và suốt ngày hôm đó không 
-cười. Môn đệ lấy làm lạ, đáng bạo hỏi:
+cười. Môn đệ lấy làm lạ, đánh bạo hỏi:
 
-"Một con cừu có đáng gì đâu, mà con đó lại không phải của thầy, sao thầy rầu rĩ 
-tới không nói, không cười như vậy."
+"Một con cừu có đáng gì đâu. Mà con cừu đó lại không phải của thầy, sao thầy rầu 
+rĩ tới không nói, không cười như vậy?"
 
 Dương Chu không đáp và môn đệ không hiểu ý thầy ra sao.
 
