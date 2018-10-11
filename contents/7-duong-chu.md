@@ -1,10 +1,10 @@
 # Chương 7: Dương Chu
 
-Dương Chu qua chơi nước Lỗ, ở nhà Mạnh thị. Mạnh thị hỏi:
+Dương Chu qua chơi nước Lỗ, ở nhà Mạnh Thị. Mạnh Thị hỏi:
 
 "Làm người cũng đủ rồi, danh để làm gì?"
 
-Đáp:
+Dương Chu đáp:
 
 "Người ta dùng danh để làm giàu."
 
@@ -22,49 +22,38 @@ Dương Chu qua chơi nước Lỗ, ở nhà Mạnh thị. Mạnh thị hỏi:
 
 "Danh mà có ích gì cho con cháu?"
 
-Dương Chu đáp:
-
 "Có danh thì khổ cho cái thân, não tấm lòng. Nhưng người có danh thì họ hàng
-được hưởng ân huệ, làng mạc được hưởng lộc, huống hồ được con cháu."
-
-Mạnh thị nói:
+được hưởng ân huệ, làng mạc được hưởng lộc, huống hồ là con cháu."
 
 "Người nào muốn có danh thì tất phải liêm khiết, mà liêm khiết thì nghèo; muốn
-có danh thì phải nhún nhường mà nhún nhường thì thấp hèn (không vinh hiển)."
+có danh thì phải nhún nhường mà nhún nhường thì thấp hèn (không vinh hiển). Quản 
+Trọng hồi làm tướng quốc nước Tề, vua dâm đãng thì cũng dâm đãng, vua xa xỉ thì 
+cũng xa xỉ, ý chí và ngôn ngữ đều theo đúng vua mà thi hành được chính sách, 
+khiến cho nước Tề thành bá chủ chư hầu, chết rồi con cháu cũng chỉ là những kẻ 
+họ Quản mà thôi (không ai giàu sang). Điền thị làm tướng quốc nước Tề, vua mà 
+tự đắc quá thì ông khiêm tốn, vua mà tham lam thì ông rộng rãi, dân đều qui phục, 
+nên sau ông được làm vua Tề, con cháu tới nay còn được hưởng thụ."
 
-Đáp:
+Thị Mạnh lại hỏi:
 
-"Quản Trọng hồi làm tướng quốc nước Tề, vua dâm đãng thì cũng dâm đãng, vua xa
-xỉ thì cũng xa xỉ, ý chí và ngôn ngữ đều theo đúng vua mà thi hành được chính
-sách, khiến cho nước Tề thành bá chủ chư hầu, chết rồi con cháu cũng chỉ là
-những kẻ họ Quản mà thôi (không ai giàu sang). Điền thị làm tướng quốc nước Tề,
-vua mà tự đắc quá thì ông khiêm tốn, vua mà tham lam thì ông rộng rãi, dân đều
-qui phục, nên sau ông được làm vua Tề, con cháu tới nay còn được hưởng thụ."
-
-Mạnh thị hỏi:
-
-"Có phải như vậy là hễ thực danh thì nghèo mà nguỵ danh thì giàu, thực danh thì
+"Có phải như vậy thì hễ thực danh thì nghèo mà nguỵ danh thì giàu, thực danh thì
 hèn, nguỵ danh thì sang không?"
 
-Đáp:
+Dương Chu Đáp:
 
 "Hễ thực thì không có danh, hễ có danh thì không có thực. Những người có danh
 đều là ngụy hết. Hồi xưa, vua Nghiêu vua Thuấn giả dối đem thiên hạ nhường cho
 Hứa Do và Thiện Quyển, nên mới giữ được thiên hạ mà hưởng lộc tới trăm tuổi. Bá
 Di, Thúc Tề thực tâm nhường ngôi nước Cô Trúc, cho nên mới mất nước, chết đói ở
-núi Thú Dương. Coi đó thì biết được thành thực và giả dối khác nhau ra sao."
+núi Thú Dương. Coi đó thì biết được thành thực và giả dối khác nhau ra sao.
 
-***
-
-Dương Chu bảo:
-
-"Thọ nhiều lắm là trăm tuổi, mà ngàn người không có một người có tuổi đó. Có
-được chăng thì tuổi thơ phải bế bồng với tuổi già nua lẫm cẫm chiếm mất gần một
-nửa trăm năm đó rồi. Thời gian ban đêm ngủ, ban ngày bỏ phí, lại chiếm gần một
-nửa (chỗ còn lại) nữa. Ốm đau, buồn khổ, tán thất, lo sợ, lại mất một khoảng nửa
-(chỗ còn lại) nữa. Tính ra trong mươi năm còn lại (đáng lẽ) được sống ung dung
-vui vẻ thì những lúc không phải lo lắng chút nào, gom lại cũng không được một
-giờ!
+Người ta thọ nhiều lắm là trăm tuổi, mà ngàn người không có một người có tuổi đó. 
+Có được chăng thì tuổi thơ phải bế bồng với tuổi già nua lẫm cẫm chiếm mất gần 
+một nửa trăm năm đó rồi. Thời gian ban đêm ngủ, ban ngày bỏ phí, lại chiếm gần 
+một nửa (chỗ còn lại) nữa. Ốm đau, buồn khổ, tán thất, lo sợ, lại mất một khoảng 
+nửa (chỗ còn lại) nữa. Tính ra trong mươi năm còn lại (đáng lẽ) được sống ung 
+dung vui vẻ thì những lúc không phải lo lắng chút nào, gom lại cũng không được 
+một giờ!
 
 Vậy thì con người sống để làm gì. Vui sướng ở đâu? Vui cái đẹp với cái ngon, vui
 cái thanh sắc, nhưng cái đẹp cái ngon không được hưởng thường cho tới chán, cái
@@ -83,11 +72,7 @@ của họ, không làm trái với xu hướng của vạn vật; họ không m
 khi chết; cho nên không nghĩ tới hình phạt. Danh tiếng hơn kém, tuổi thọ nhiều
 ít, họ không quan tâm tới.
 
-***
-
-Dương Chu nói:
-
-"Vạn vật sống thì khác nhau mà chết thì như nhau hết. Sống, có kẻ hiền người
+Vạn vật sống thì khác nhau mà chết thì như nhau hết. Sống, có kẻ hiền người
 ngu, kẻ sang người hèn, thế là khác nhau; chết thì tan xác ra, hôi thối, tiêu
 diệt, ai cũng như ai. Hiền hay ngu, sang hay hèn, không phải mình muốn mà được;
 tan rã, hôi thối, tiêu diệt, cũng chẳng phải do ta muốn.
@@ -104,27 +89,20 @@ Thế thì cứ hưởng đời đi, nghĩ làm quái gì tới chuyện sau khi
 
 ***
 
-Dương Chu bảo:
-
-"Nguyên Hiến sống nghèo khổ ở nước Lỗ, mà Tử Cống thì buôn bán (làm giàu) ở nước
+Nguyên Hiến sống nghèo khổ ở nước Lỗ, mà Tử Cống thì buôn bán (làm giàu) ở nước
 Vệ. Nguyên Hiến vì nghèo mà tổn sinh, Tử Cống vì giàu mà luỵ thân, vậy thì nghèo
-đã không nên, giàu cũng không nên, nên làm sao đây?"
-
-Đáp:
-
-"Nên làm sao cho vui vẻ, an nhàn tấm thân. Kẻ biết sống vui thì tránh sự nghèo,
-kẻ biết sống an nhàn thì tránh sự làm giàu."
+đã không nên, giàu cũng không nên, nên làm sao đây? Nên làm sao cho vui vẻ, an 
+nhàn tấm thân. Kẻ biết sống vui thì tránh sự nghèo, kẻ biết sống an nhàn thì 
+tránh sự làm giàu.
 
 ***
 
-Dương Chu nói:
-
-"Lời xưa có câu: 'Nên thương người sống mà đừng nghĩ tới người chết'. Lời đó chí
+Lời xưa có câu: 'Nên thương người sống mà đừng nghĩ tới người chết'. Lời đó chí
 lí. Thương người sống không phải chỉ là việc tình cảm mà thôi, mà còn phải giúp
 người lao khổ được nghỉ ngơi, người đói được no, người rét được ấm, người khốn
 khổ được sung sướng. Không nghĩ tới người chết, không phải chỉ đừng khóc lóc, mà
 còn đừng bỏ châu ngọc vào miệng người chết, đừng liệm bằng đồ gấm vóc, đừng dâng
-những vật hi sinh, đừng bày đồ tế tự."
+những vật hi sinh, đừng bày đồ tế tự.
 
 ***
 
@@ -170,9 +148,9 @@ sông cũng được, chôn cất cũng được mà phơi ra giữa trời cũn
 bằng cỏ mà liệng xuống cái hầm cái hố nào đó cũng được, liệm bằng áo lễ, áo thêu
 mà cho vào quách bằng đá cũng được, sao cũng được hết."
 
-Quản Di Ngô quay lại bảo Bão Thúc:
+Quản Di Ngô quay lại nói với Bảo Thúc:
 
-"Hoàng Tử nói: Cái đạo sinh tử , hai ta đều rõ rồi vậy."
+"Cái đạo sinh tử, hai ta đều rõ rồi vậy."
 
 ***
 
@@ -195,7 +173,7 @@ người thân, không tiếp đãi bạn bè, trốn ở vườn sau, suốt ng
 mới ra ngoài mà còn cho là chưa thoả. Thấy trong miền có gái tân nào diễm lệ,
 thì tặng đồ để mời lại, nhờ mối manh dụ dỗ, cho tới khi chiếm được mới thôi.
 
-Tử Sản ngày đêm rầu rĩ vì hai người anh em đó, ngầm bàn tính với Đặng Tích, bảo:
+Tử Sản ngày đêm rầu rĩ vì hai người anh em đó, than với Đặng Tích:
 
 "Kiều tôi nghe nói: 'Tu thân rồi mới trị được nhà, trị được nhà rồi mới trị được
 nước', nghĩa là phải tiến từ gần tới xa. Kiều tôi trị nước thì cũng xem là được
@@ -353,9 +331,7 @@ Mạnh Tôn Dương quay lại nói qua chuyện khác với môn đệ.
 
 ***
 
-Dương Chu bảo:
-
-"Mọi tiếng tốt đẹp trong thiên hạ, dồn cả cho vua Thuấn, vua Vũ, Chu Công, Khổng
+Mọi tiếng tốt đẹp trong thiên hạ, dồn cả cho vua Thuấn, vua Vũ, Chu Công, Khổng
 Tử, còn mọi tiếng xấu qui cả cho Kiệt và Trụ.
 
 Thuấn cày ruộng ở Hà Dương, làm đồ gốm ở Lôi Trạch, chân tay không lúc nào được
@@ -418,7 +394,7 @@ Vua Lương bảo:
 "Tiên sinh có một bà vợ lớn, một bà vợ nhỏ mà không trị được, có ba mẫu vườn mà
 không giẫy cỏ, mà bảo trị thiên hạ dễ như lật bàn tay, sao vậy?"
 
-Đáp:
+Dương Chu đáp:
 
 "Nhà vua thấy đứa chăn cừu không? Một bầy trăm con cừu, cho một đứa nhỏ cao năm
 thước cầm cây roi bằng cọng sen mà chăn, nó muốn dắt về phía Đông thì bầy cừu đi
@@ -441,9 +417,7 @@ không màng tới thành công nhỏ nhen.
 
 ***
 
-Dương Chu nói:
-
-"Các việc lớn thời thái cổ đã dứt rồi, ai có thể ghi lại được? Hành vi của Tam
+Các việc lớn thời thái cổ đã dứt rồi, ai có thể ghi lại được? Hành vi của Tam
 Hoàng tới nay như còn như mất, hành vi của Ngũ Đế như tỉnh như mộng, hành vi của
 Tam Vương như ẩn như hiện, một ức việc không biết chắc được một việc. Ngay những
 việc đương thời ta đây, hoặc được nghe, hoặc được thấy mà vạn việc cũng không
@@ -454,15 +428,13 @@ Từ thời thái cổ tới nay, có cơ man nào là năm, mà từ thời Ph�
 đã trên ba ngàn năm rồi. Hiền ngu, gian ác, thành bại, thị phi, không có gì là
 không tiêu diệt, chỉ là sớm hoặc muộn mà thôi.
 
-Coi trọng tiếng khen tiếng chê một thời làm cho tinh thần, hình hài tiều tuỵ,
-muốn lưu lại cái danh hão mấy trăm năm sau khi chết, nhưng chết rồi có cách nào
-làm cho nắm xương tàn tươi lại, tái sinh mà hưởng lạc được không?"
+Coi trọng lời khen tiếng chê một thời làm cho tinh thần, hình hài tiều tuỵ, muốn 
+lưu lại cái danh hão mấy trăm năm sau khi chết, nhưng chết rồi có cách nào làm 
+cho nắm xương tàn tươi lại, tái sinh mà hưởng lạc được không?
 
 ***
 
-Dương Chu nói:
-
-"Con người bản chất giống trời đất, có đức tính của ngũ hành, là loài tối linh
+Con người bản chất giống trời đất, có đức tính của ngũ hành, là loài tối linh
 trong vạn vật, nhưng móng tay và răng không đủ để tự vệ, da thịt không đủ để
 kháng cự; chạy không đủ mau để trốn nguy; lại không đủ lông để che nắng tránh
 lạnh. Phải nhờ cậy ngoại vật để tự nuôi sống, nhưng dùng mưu trí chứ không ỷ vào
@@ -487,25 +459,22 @@ Coi thân mình là vạn vật, coi vạn vật là thân mình, thì chỉ b�
 
 ***
 
-Dương Chu nói:
-
-"Con người sở dĩ không được nghỉ ngơi (an nhàn) là vì bốn nguyên nhân: ham sống
-lâu, ham danh, ham vị, và ham tiền.
+Con người sở dĩ không được nghỉ ngơi (an nhàn) là vì bốn nguyên nhân: ham sống
+lâu, ham danh, ham địa vị, và ham tiền.
 
 Vì ham bốn cái đó nên sợ quỉ, sợ người, sợ kẻ có quyền, sợ hình phạt.
 
 Hạng người đó gọi là trốn (tự nhiên), vì họ sống hay chết, thì số mệnh họ cũng
 tuỳ ngoại vật (chứ không tuỳ họ).
 
-Nếu thuận mệnh thì đâu còn cầu thọ; không ham quí hiển thì đâu còn cầu danh;
-không muốn có uy thế thì đâu thích địa vị; không ham giàu thì đâu quí tiền của.
-Hạng người như vậy gọi là thuận “tự nhiên”, trong thiên hạ không có gì ngang với
+Nếu thuận mệnh thì đâu còn cầu thọ; Không ham quí hiển thì đâu còn cầu danh;
+Không muốn có uy thế thì đâu thích địa vị; Không ham giàu thì đâu quí tiền của.
+Hạng người như vậy gọi là thuận “tự nhiên”. Trong thiên hạ không có gì ngang với
 họ được, số mạng họ tuỳ thuộc họ (chứ không tuỳ thuộc ngoại vật).
 
-Cho nên ngạn ngữ có câu:-
-
-"Người nào không lập gia đình, không làm quan thì tình dục mất đi một nửa, người
-nào không quan tâm tới cái ăn cái mặc thì chẳng có bổn phận vua tôi."
+Cho nên ngạn ngữ có câu: "Người nào không lập gia đình, không làm quan thì tình 
+dục mất đi một nửa, người nào không quan tâm tới cái ăn cái mặc thì chẳng có bổn 
+phận vua tôi."
 
 ***
 
@@ -517,21 +486,6 @@ Sáng sớm ra đồng, tối mới về nhà, họ tự biết sống theo bả
 Một buổi sáng nào đó cho họ nằm giường êm màn thêu, ăn gạo ngon và thịt béo,
 lan, quít, thì tâm thần thể chất họ khó chịu, phát nhiệt mà sinh bệnh; còn các
 ông vua nước Thương nước Lỗ nếu sống như họ thì cũng không chịu nổi được một
-giờ. Cho nên, cái gì nông dân thích, thì họ cho là khắp thiên hạ không có gì
-hơn.
-
-Xưa, nước Tống có một nông phu, suốt năm bận áo bố, mùa đông lạnh cũng rán chịu,
-qua mùa xuân thì sưởi nắng, không hề biết rằng trên đời có những lâu đài rộng
-rãi, những căn phòng ấm áp, những áo bằng gấm vóc, bằng lông chồn, lông hạc, cho
-nên bảo vợ:
-
-"Không ai biết rằng ánh nắng sưởi ấm được lưng. Anh tâu với vua điều đó, chắc
-được hậu thưởng."
-
-Một người giàu có trong làng bảo chú ta:
-
-"Xưa có một người thích rau dại, rau gai ngọt, rau hành cần, và bèo, khen những
-thứ đó với một vị giàu có trong làng. Vị này nếm thử, cay miệng mà đau bụng, bị
-mọi người chế nhạo, chê bai mà xấu hổ. Chú thì cũng vậy."
+giờ.
 
 [Chương 8: Tuyết Phù &rarr;](https://github.com/thaicuc/sach-liet-tu/blob/master/contents/8-thuyet-phu.md)
