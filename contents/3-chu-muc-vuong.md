@@ -135,53 +135,6 @@ ai mà phân biệt được. Thôi thì cứ làm theo lời ông sĩ sư là x
 
 ***
 
-Một người tên là Hoa Tử ở đất Dương Lí nước Tống, khi đứng tuổi mắc bệnh quên,
-sáng lấy cái gì thì tối quên rồi, tối cho ai cái gì thì sáng đã quên rồi, đi
-đường thì quên mình định đi đâu, ở nhà thì quên ngồi, lúc này quên lúc trước,
-lúc sau quên lúc này. Cả nhà rầu rỉ lắm.
-
-Nhờ thầy bói cho, quẻ không dạy gì cả; nhờ thầy pháp cúng cho, không hết; nhờ
-thầy lang trị cho, cũng trơ trơ.
-
-Nước Lỗ có một nho sinh tự giới thiệu là có thể trị được. Vợ con Hoa Tử hứa nếu
-trị được thì xin tặng nửa gia tài.
-
-Nho sinh đó bảo:
-
-"Bệnh đó vốn không thể bói mà biết được, không thể cúng mà hết được, không thể
-dùng thuốc mà trị được. Tôi thử sửa tâm tính ông ấy, đổi trí lự ông ấy, may ra
-đỡ được chăng."
-
-Thế rồi nho sinh đó cởi hết áo của Hoa Tử ra, thấy ông ta đòi mặc; bắt ông ta
-chịu đói, thấy ông ta đòi ăn; nhốt ông ta vào chỗ tối, thấy ông ta đòi ra chỗ
-sáng. Và nho sinh đó vui vẻ bảo con Hoa Tử:
-
-"Bệnh có thể chữa được đấy; nhưng phương của tôi bí truyền, không thể cho người
-khác biết được. Xin ngăn hết các người chung quanh, để tôi ở riêng với ông nhà
-bảy ngày."
-
-Người nhà làm theo, không biết nho sinh đó trị cách nào mà căn bệnh đã mấy năm
-đó nhất đán khỏi hẳn.
-
-Hoa Tử khi đã tỉnh rồi, nổi giận đùng đùng, đuổi vợ, đánh con, vác cây mác đuổi
-nho sinh. Người Tống níu lại, hỏi tại sao, Hoa Tử đáp:
-
-"Trước kia tôi quên hết, thanh thản, không biết trời đất có hay không nữa. Nay
-bừng tỉnh, những gì xảy ra mấy chục năm nay, còn hay mất, thua hay được, vui
-buồn, yêu ghét, bời bời muôn mối trong lòng, tôi sợ những nỗi còn mất, thua
-được, vui buồn, yêu ghét lại sẽ làm rối loạn trong lòng tôi nữa; có muốn quên
-một lát, phỏng còn được nữa không?"
-
-Tử Cống nghe chuyện đó, lấy làm lạ, hỏi Khổng Tử, Khổng Tử bảo:
-
-"Anh không hiểu được đâu."
-
-Rồi quay lại bảo Nhan Hồi:
-
-"Chép lại chuyện đó đi."
-
-***
-
 Người họ Phùng nước Tần có một người con trai hồi nhỏ rất thông minh, mà lớn lên
 mắc tật mê loạn: nghe tiếng hát thì bảo là tiếng khóc, nhìn màu trắng thì bảo là
 màu đen, ngửi mùi thơm thì bảo là mùi thối, nếm vị ngọt thì bảo là vị đắng, làm
