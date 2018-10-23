@@ -143,7 +143,7 @@ Kẻ muốn phục thù không lẽ lại bẻ cây gươm của kẻ thù (vì 
 mà dù có nóng tính, cũng không ai lại oán phiến ngói rơi nhằm đầu mình (vì
 phiến ngói cũng vô tâm).
 
-Theo được Đạo (qui tắc) đó thì thiên hạ được quân bình, không có loạn chiến
+Theo được Đạo (qui tắc) đó thì thiên hạ được quân bình, không có cái loạn chiến
 tranh, không có cái hoạ chém giết. Không nên dùng trí tuệ mà truy cầu tự nhiên,
 cứ thuận theo bản tính mà ứng hợp với tự nhiên.
 
