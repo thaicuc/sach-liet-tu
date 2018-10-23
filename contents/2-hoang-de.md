@@ -434,11 +434,8 @@ Chúng đều nổi giận không chịu. Rồi ông bảo:
 
 "Thế thì cho chúng bay sáng bốn, chiều ba, đủ không?"
 
-Chúng đều phủ phục, mừng lắm.
-
-Các sinh vật khôn và dại, gạt nhau đều như vậy cả. Thánh nhân dùng trí mà gạt
-bọn dân ngu, cũng như người nuôi khỉ đó dùng trí mà gạt khỉ. Số hạt dẻ không hề
-đổi, mà khiến cho bầy khỉ trước giận sau vui.
+Chúng đều phủ phục, mừng lắm. Số hạt dẻ không hề đổi, mà khiến cho bầy khỉ 
+trước giận sau vui.
 
 ***
 
@@ -478,14 +475,15 @@ Lão Tử đáp:
 "Anh có vẻ tự mãn, khoa trương thì ai mà muốn ở gần anh. Trắng bong thì coi như
 có vết, đức mà đầy đủ thì có vẻ như thiếu thốn."
 
-Dương Tử ngượng nghịu, biến sắc, thưa:
+Dương Tử ngượng nghịu, biến sắc, xin lui ra. Sau khi ra về, Dương Tử dốc sức sửa
+mình theo lời thầy.
 
-"Con xin vâng lời."
-
-Trước kia, khi Dương Tử mới tới quán trọ, chủ quán ra đón, ông già chủ quán giải
+Trước kia, khi Dương Tử mới tới quán trọ, chủ quán ra đón, ông già chủ quán trải
 chiếu mời, vợ chủ quán dâng khăn và lược, và khách trọ nhường chỗ tốt cho, người
-đầu bếp nhường chỗ ăn cho. Bây giờ (sau khi Dương tử nghe lời khuyên của Lão
-Tử), các người khách trọ tranh nhau chỗ với Dương Tử.
+đầu bếp nhường chỗ ăn cho.
+
+Bây giờ (sau khi sửa mình theo lời thầy), vợ chồng chủ quán trọ không còn ưu đãi
+Dương Tử nữa. Các khách trọ khác thì tranh nhau chỗ với Dương Tử.
 
 ***
 
@@ -496,18 +494,18 @@ người vợ đẹp.
 
 Dương Chu hỏi tại sao, chủ quán đáp:
 
-"Con vợ đẹp của tôi tự cho mình là đẹp cho nên tôi không thấy nó đẹp; con vợ xấu
+"Con vợ đẹp của tôi tự cho mình là đẹp cho nên tôi không thấy nó đẹp; Con vợ xấu
 của tôi tự cho mình là xấu, nên tôi không thấy nó xấu."
 
 Dương Chu bảo các đệ tử:
 
 "Các con nên nhớ điều đó. Hành động như hiền nhân, mà đừng có thái độ tự cho
-mình là bậc hiền nhân, thì đi tới đâu mà chẳng được người ta quí!"
+mình là bậc hiền nhân, thì đi tới đâu mà chẳng được người ta trọng."
 
 ***
 
 Triệu Tương Tử thống suất trăm ngàn người đi săn ở núi Trường Sơn. Họ dùng cỏ
-khô đốt rừng, cháy hừng hừng cả trăm dặm.
+khô đốt rừng, cháy lan đến cả trăm dặm.
 
 Bỗng thấy một người từ trong vách đá chui ra, cùng bay lên đáp xuống với ngọn
 lửa và tàn lửa, mọi người đều cho là quỉ. Lửa tắt rồi, người đó ung dung bước
@@ -530,7 +528,7 @@ Người đó nói:
 
 "Tôi không biết gì cả."
 
-Nguỵ Văn hầu nghe chuyện đó hỏi Tử Hạ :
+Nguỵ Văn hầu nghe chuyện đó hỏi Tử Hạ:
 
 "Người đó là hạng người nào vậy?"
 
@@ -544,7 +542,7 @@ Văn hầu hỏi:
 
 "Sao thầy không làm như vậy?"
 
-"Diệt lòng, bỏ trí, Thương tôi chưa làm được; nhưng nếu nhàn thì cũng xin bàn về
+"Diệt lòng, bỏ trí, Thương tôi chưa làm được; Nhưng nếu nhàn thì cũng xin bàn về
 điều đó."
 
 Văn hầu bảo:
@@ -599,14 +597,14 @@ Vua Tống đáp:
 
 Huệ Áng bảo:
 
-"Đó là đạo của họ Khổng họ Mặc. Khổng Khâu và Mặc Địch không có đất đai mà vẫn
+"Đó là đạo của họ Khổng, họ Mặc. Khổng Khâu và Mặc Địch không có đất đai mà vẫn
 làm vua, không có bề tôi mà vẫn làm chúa. Đàn ông và đàn bà trong thiên hạ không
 ai là không nghểnh cổ, nhón gót để ngó, để giúp đỡ, bảo toàn họ. Nay đại vương
 là một vị chúa một nước có vạn cổ xe, nếu thực muốn như vậy, thì trong bốn cõi,
 đại vương đều được mọi người giúp đỡ, còn hiền minh hơn Khổng, Mặc nhiều."
 
-Vua Tống làm thinh không đáp. Huệ Áng vội vã bước ra. Vua Tống nói với bề tôi 
-tả hữu:
+Vua Tống làm thinh không đáp. Huệ Áng thấy vậy vội vã bước ra. Vua Tống nói với 
+bề tôi tả hữu:
 
 "Người khách đó khéo biện thuyết, quả nhân không biết đáp sao."
 
