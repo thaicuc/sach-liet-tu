@@ -57,8 +57,8 @@ huệ, mà mọi vật đều tự túc; không thu nhặt gom góp mà không t
 
 Âm Dương luôn luôn điều hoà, mặt trăng mặt trời luôn luôn sáng tỏ, bốn mùa bao
 giờ cũng thuận, gió mưa bao giờ cũng hoà; thực vật cứ đúng thời mà có, mùa màng
-năm nào cũng trúng, đất cát không bị thương tổn, người không chết yểu, vạn vật
-không bị bệnh tật, quỉ không xuất hiện, hết linh.
+năm nào cũng trúng, đất cát không bị tổn thương, không ai chết yểu, vạn vật không 
+bị bệnh tật, quỉ không xuất hiện, hết linh.
 
 ***
 
