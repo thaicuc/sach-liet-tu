@@ -77,7 +77,7 @@ Còn ông họ Doãn kia, lòng bận việc đời, trí lo sản nghiệp, tâ
 mọi việc, mà còn bị đánh, bị mắng, cực khổ trăm chiều. Trong mộng, ông ta mê
 sảng, hổn hển suốt đêm, sáng dậy mới hết.
 
-Họ Doãn thấy vậy lo buồn, hỏi ý một người bạn. Người này đáp:
+Họ Doãn nghe được vậy, lo buồn, hỏi ý một người bạn. Người này đáp:
 
 "Địa vị của bác đủ vẻ vang rồi, tài sản của bác dư dật hơn người ta nhiều rồi.
 Ban đêm có nằm mê thấy làm tôi tớ, thì cũng là vui khổ thay phiên nhau, đó là lẽ
